@@ -1,1 +1,6 @@
 ![image alt](https://github.com/Startwebdeveloper/CODSOFT/blob/main/Level1_Task1/Screenshot%201.png?raw=true)
+![image alt](https://github.com/Startwebdeveloper/CODSOFT/blob/main/Level1_Task1/Screenshot%202.png?raw=true)
+![image alt](https://github.com/Startwebdeveloper/CODSOFT/blob/main/Level1_Task1/Screenshot%203.png?raw=true)
+![image alt](https://github.com/Startwebdeveloper/CODSOFT/blob/main/Level1_Task1/Screenshot%204.png?raw=true)
+![image alt](https://github.com/Startwebdeveloper/CODSOFT/blob/main/Level1_Task1/Screenshot%205.png?raw=true)
+![image alt](https://github.com/Startwebdeveloper/CODSOFT/blob/main/Level1_Task1/Screenshot%206.png?raw=true)
